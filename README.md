@@ -1,0 +1,1 @@
+# Agentic_design_patterns_29_09_2027
